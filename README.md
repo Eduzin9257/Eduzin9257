@@ -6,5 +6,6 @@ Utilizo essse espaço para minha organização e compartilhamento dos meus proje
 ### Você pode entrar em contato comigo em: 📫
 eduardocorreaperson@gmail.com
 
-![image](https://github.com/Eduzin9257/Eduzin9257/assets/171054123/dda72552-8f81-4a6d-abe3-726857e88594)
+![image](https://github.com/Eduzin9257/Eduzin9257/assets/171054123/8bc9879f-8da0-42c1-9bc4-bd8ea85d5398)
+
 
